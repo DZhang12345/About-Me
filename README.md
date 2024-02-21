@@ -48,4 +48,5 @@ February 2023 – PRESENT Duke University Science Olympiad – Event volunteer a
 • Science Olympiad (competitor) – competed in regional and states [2020-2023] 
 • National Science Honor Society (member) – 10 hours of sustainable clean-up each year [2020-2023] 
 • National English Honor Society (member) – help improve English literacy in our community [2021-2023] 
-• Chess Club (member) [2014-2023] • Monarch Maniacs (copresident and student section leader) – a culture group [2022-2023]
+• Monarch Maniacs (copresident and student section leader) – a culture group [2022-2023]
+• Chess Club (member) [2014-2023] 
